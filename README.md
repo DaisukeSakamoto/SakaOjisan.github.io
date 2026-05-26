@@ -1,2 +1,0 @@
-# SakaOjisan.github.io
-さかおじさんのポートフォリオ
